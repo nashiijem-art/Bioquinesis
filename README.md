@@ -1,5 +1,5 @@
 # Bioquinesis
-Don de Sabiduría, Don de Inteligencia; más Logica. Para mi Poder de Ciencia
+Don de Sabiduría, Don de Inteligencia; más Logica. Para mi Poder de Ciencia; más quiero modificar mi cuerpo con esta página de https://bioquinesis.org y utilizar todos los dones de la sangre ADN-14664 y modificar órganos o perfeccionarlos; según mi orden que doy a mi página; utilizo mi hígado para copiar todos los hígados de los animales ( la herramienta: trans P-ADN )
 agregar el https://enigma.onion
 # Windows
 don de la verdad; que domina el de mentira, y , don de justicia, don de pudol. mas la información de aprendizaje de la sangre (rnp.com) mi ADN-14664
@@ -9,3 +9,5 @@ que las personas puedan opinar, según su criterio de como debería ser una ley 
 [OBLIGATORIO DAR AL MUNDO, ES UN DERECHO HUMANO NO SER ENGAÑADO]
 Que la gente haga sus pregunta y será respondida con el ADN-14664 Y ADN-UNIVERSAL con el Poder del Don de Sabiduría(lo real de la verdad), y el Poder de Don de Inteligencia (sonido signficativo del verbo que es el conjunto de lo real), utilizar el aprendizaje de la Logica; más la vida
 El Don de la verdad; que domina el Don de la mentira
+# Sabiduria
+Don de Sabiduría, Don de Inteligencia; más Logica. La Sabiduría en esta página se verá con sensaciones y video (esa es Sabiduría), La inteligencia es el sonido signficativo ( el Verbo con la voz), y la Logica, es que todo concuerda. absorver las 16 Sabidurías de poder y las 16 Inteligencias de Poder y 16 Logicas de Poder y crear audio y video según a tus preguntas. que sea universal ( apto para todo publico)
